@@ -1,5 +1,9 @@
-## Hi there 👋
-
+<img width="1200" height="337" alt="image" src="https://github.com/user-attachments/assets/6a771530-e0f7-454c-ab39-3884cd8d5796" /><br><br>
+👋 Hi, I’m Suyash Tiwari<br><br>
+I’m naturally curious and always looking for something that challenges me. I don’t like staying comfortable for too long — growth happens when things feel unfamiliar.<br>
+When something interests me, I give it my full attention. I prefer understanding things deeply rather than just knowing them on the surface.<br>
+I value honesty, consistency, and Kindness over noise!!🤍<br>
+Always evolving🌱.
 <!--
 **Suyashtiwari-7/Suyashtiwari-7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
