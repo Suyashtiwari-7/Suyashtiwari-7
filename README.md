@@ -5,6 +5,10 @@ I’m naturally curious and always looking for something that challenges me. I d
 When something interests me, I give it my full attention. I prefer understanding things deeply rather than just knowing them on the surface.<br>
 I value honesty, consistency, and Kindness over noise!!🤍<br>
 Always evolving🌱.
+
+[😉 Swing by my website for more!](https://suyashtiwari-7.github.io/Suyashtiwari-7/)
+
+
 <!--
 **Suyashtiwari-7/Suyashtiwari-7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
